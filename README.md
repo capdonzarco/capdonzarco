@@ -5,14 +5,14 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ**DNI :**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤbasic dni criteria (homophobes, racists, xenophobes, etc...), tcc, rl gore enjoyers, 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤTR cosplayers, sovreich shippers
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤTR cosplayers, sovreich shippers
 
 ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THIN ICE (im only okay with these if we're already friends/mutuals) :**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤhetalia fans/cosplayers, napoleonic wars fans/cosplayers, ship spain or portugal with 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤanyone else/don't ship spaport
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤanyone else/don't ship spaport
 
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
