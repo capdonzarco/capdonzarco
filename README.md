@@ -5,7 +5,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ**DNI :**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤbasic dni criteria (homophobes, racists, xenophobes, etc...), tcc, rl gore enjoyers, 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤTR cosplayers, sovreich shippers, roleplayers
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤTR cosplayers, sovreich shippers, people looking for roleplay
 
 ㅤ
 
