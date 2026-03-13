@@ -3,9 +3,12 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
                 im always in the countryhumans area on safe server, global & esp/pt
-                im mostly offtab, but feel free to whisper a hi😇
-                sorry if i dont approach you or talk to you at first, i'm either afk or am just anxious.
-                i like the iberic peninsula, macaronesia, CPLP and central africa
+                
+ im mostly offtab, but feel free to whisper a hi😇
+                
+sorry if i dont approach you or talk to you at first, i'm either afk or am just anxious
+                
+i like the iberic peninsula, macaronesia, CPLP and central africa
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ**DNI :**
