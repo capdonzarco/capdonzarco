@@ -8,6 +8,10 @@ read listography for dni
 
 outside of ponytown, my twitter is ptmaptacescncpv and my discord is capdonzarco :d  
 
+friend requests are fine on discord, but know i dont use it a lot
+
 i have some other socials, but i only give them if we know each other extremely well
+
+im not on ponytown for long periods of time most days. sometimes im only for 5 minutes, sorry 
 
 [listography](https://listography.com/macaronesia)ㅤㅤ[strawpage](https://macaronesia.straw.page/)ㅤㅤ[atabook](https://capdonzarco.atabook.org/)
