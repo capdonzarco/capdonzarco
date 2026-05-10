@@ -1,6 +1,6 @@
-im always in the countryhumans area on safe server, global & esp/pt
+im always in the countryhumans area on safe server, mainly global but sometimes esp/pt
                 
-i like the iberic peninsula, macaronesia, CPLP and central africa
+i like the iberic peninsula, macaronesia, CPLP and central africa most
 
 read listography for dni
 
