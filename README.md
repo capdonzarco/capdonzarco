@@ -2,7 +2,7 @@ im always in the countryhumans area on safe server, mainly global but sometimes 
                 
 i like the iberic peninsula, macaronesia, CPLP and central africa most
 
-dni obvious dni criteria, hetalia, napoleon fans, american revolution or founding father fans, most historical rpf fans
+dni obvious dni criteria, hetalia, napoleon fans
 
 read listography for deeper dni
 
